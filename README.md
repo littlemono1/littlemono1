@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @littlemono1
+- 👀 I’m interested in anything
+- 🌱 I’m currently learning scratch
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me i will not tell you
